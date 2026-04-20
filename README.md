@@ -31,4 +31,4 @@ Actively seeking graduate and entry-level roles in data science, machine learnin
 
 ## Contact
 
-[LinkedIn](https://linkedin.com/in/hanad-ali28) · [Email](mailto:your.email@example.com)
+[LinkedIn](https://linkedin.com/in/hanad-ali28) · [Email](mailto:hanadali2802@gmail.com)
